@@ -1,3 +1,8 @@
+---
+title: Your LDS Wedding Planner
+description: a guide to a stunning wedding day
+---
+
 # Your LDS Wedding Planner
 _a guide to a stunning wedding day_
 by Ann Louise Peterson
