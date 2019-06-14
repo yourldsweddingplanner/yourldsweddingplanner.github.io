@@ -21,7 +21,7 @@ Buy Now!
 
 This is the official website of **Ann Louise Peterson** and **Your LDS Wedding Planner: A Guide to a Stunning Wedding**.
 
-Ann Louise Peterson is passionate about weddings. Some may consider her love of wedding planning an obsession, but anyone who knows Ann knows she just enjoys making people happy. She lives in the Salt Lake area with her husband and five children.
+Ann Louise Peterson is passionate about weddings. Some may consider her love of wedding planning an obsession, but anyone who knows Ann knows she just enjoys making people happy. She lives in the Salt Lake area with her husband and six children.
 
 _Your LDS Wedding Planner: A Guide to a Stunning Wedding_ is published by [Cedar Fort, Inc](http://cedarfort.com/)
 
